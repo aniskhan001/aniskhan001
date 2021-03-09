@@ -1,1 +1,1 @@
-🚴🏻‍♂️ &nbsp; 👨🏼‍ &nbsp; 💻  &nbsp; 🎮 &nbsp; ⚽️ &nbsp; 🍕 &nbsp; 💥
+I write in a text editor 🙂
